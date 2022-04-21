@@ -1,2 +1,2 @@
-# exboatudios.com
+# exbostudios.com
 Where ExBo helps YOU
