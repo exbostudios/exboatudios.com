@@ -1,7 +1,7 @@
-# exbostudios.com
-Where ExBo helps YOU
+# ocialstudios.com
+Where ocial helps YOU
 made by 
 ya boii lolzz#9999
 # Employess
-ya boii lolzz#9999
-Duck.#0345
+ya boii lolzz
+AlicCrafter
